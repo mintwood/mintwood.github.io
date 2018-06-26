@@ -1,1 +1,0 @@
-# mintwood.github.io
